@@ -6,7 +6,7 @@ I’m in my final year at Thomas More in Belgium, studying across design and dev
 
 I enjoy both the creative work and the organisation behind it: making design decisions, sharing responsibilities and helping a team keep moving.
 
-Looking for a design internship in Northern Spain / the Basque Country from February 2027, with Erasmus+ funding secured.
+Looking for a 14-week design internship in Northern Spain / the Basque Country, from 8 February to 14 May 2027, 4 days a week, with Erasmus+ funding secured.
 
 [View my portfolio](https://github.com/Dmitry-Pil/Portfolio) · [LinkedIn](https://www.linkedin.com/in/dmitry-pilipishin/)
 
